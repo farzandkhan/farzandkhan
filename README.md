@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @farzandkhan
 - 👀 I’m interested in every thing technology
 - 🌱 I’m currently learning life on Earth
-- 💞️ I’m looking to collaborate on no spreading Human life to Solar System & beyond
+- 💞️ I’m looking to collaborate on spreading Human life to Solar System & beyond
 - 📫 How to reach me - twiiter.com/farzandfz
 
 <!---
